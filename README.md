@@ -1,2 +1,0 @@
-# Tai-chi-bear
-LuanYingJie
